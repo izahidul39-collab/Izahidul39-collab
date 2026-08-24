@@ -1,6 +1,6 @@
 # Welcome! 📰
 
-I'm **[Your Name, e.g., Zahidul Islam]**. My primary focus is on digital content, SEO, and technical topics. One of my key projects is **"Newsword24.com"**.
+I'm Zahidul Islam. My primary focus is on digital content, SEO, and technical topics. One of my key projects is **"Newsword24.com"**.
 
 If you're looking for the latest news, trending information, and analytical reports, you've come to the right place. We provide fresh, reliable news daily.
 
